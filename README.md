@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm looking for Data Analyst Role<br>
+Yur're looking a to be  Data Analyst <br>
 
 
 ## 🌐 Socials:
